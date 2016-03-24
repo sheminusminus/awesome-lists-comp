@@ -1,0 +1,1 @@
+- http://designmodo.com/svg-infographic/
